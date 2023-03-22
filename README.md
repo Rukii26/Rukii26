@@ -10,4 +10,4 @@ Mis hobbies son:
 -Las peliculas 🕵️‍♀️ <br>
 -Ver videos de gatos😼<br>
 
-![gato](https://user-images.githubusercontent.com/124364131/219867258-a2257641-3b5f-45fe-bea2-8726ed921d50.gif)
+![gato](https://media.tenor.com/QsRRHKx52XEAAAAd/el-gato-tristito.gif)
